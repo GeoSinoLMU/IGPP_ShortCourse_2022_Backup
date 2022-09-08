@@ -1,1 +1,0 @@
-# IGPP_ShortCourse_2022_Backup
